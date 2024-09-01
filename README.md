@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Anuj-R2D2
-- 👀 I’m interested in death
-- 🌱 I’m currently learning about life
-- 💞️ I’m looking to collaborate in da bed with yo mom
+
  gamerlegend447@gmail.com
 
 <!---
