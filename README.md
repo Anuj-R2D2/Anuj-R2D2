@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Anuj-R2D2
 - catch me up at
-+977 9702813643(whatsapp)
++977 9702813643 (whatsapp)
   OR
  gamerlegend447@gmail.com
 
